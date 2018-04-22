@@ -1,0 +1,1 @@
+This cheat is trash gonna crash alot only good for specific features.
